@@ -1,2 +1,2 @@
-trying out github 
-hello guys hope all is well
+Trying out github, 
+Hello guys hope all is well
